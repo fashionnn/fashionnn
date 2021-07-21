@@ -1,0 +1,5 @@
+- 👋 heyy im fashion
+- 👀 i like sleeping eating and gaming
+- 🌱 i'm currently learning how to sleep better.
+- 💞️ lookin to collaborate on nothin.
+- 📫 my discord: fashion#9359
